@@ -1,5 +1,5 @@
 - 👋 Hi, I'm @matttre3. <br>
-- 🎨 Graphic designer turned web enthusiast, Matteo here, aged 25, and my journey has been nothing short of extraordinary. 🚀 <br>
+- 🎨 Graphic designer turned web enthusiast, Matteo here, aged 26, and my journey has been nothing short of extraordinary. 🚀 <br>
 - 👨‍💻 Currently exploring the captivating world of front-end development – the missing puzzle piece that perfectly aligns with my creativity.<br>
 - 🧠 Insatiable learner, I soak up knowledge like a sponge, ensuring the learning journey never comes to a halt.<br>
 
